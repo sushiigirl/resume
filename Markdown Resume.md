@@ -1,6 +1,4 @@
 #JACKIE WATANABE
-***phone:*** 702.327.0904
-***skype:*** jackie.watanabe
 ***website:*** [jackiewatanabe.com](http://www.jackiewatanabe.com "Jackie Watanabe")
 ***e-mail:*** [jackie@jackiewatanabe.com](jackie@jackiewatanabe.com)
 - - - -
